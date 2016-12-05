@@ -1,3 +1,5 @@
+# ![](https://github.com/Ingress-Missions/Asia_China_Shenzhen/raw/master/%5B%E5%8D%97%E5%B1%B1%5D(%E6%B7%B1%E5%9C%B3%E9%93%81%E4%BA%BA%E7%B3%BB%E5%88%97)%20%E5%8D%97%E5%B1%B1%E6%96%AF%E5%B7%B4%E8%BE%BE%E4%BA%BA/attachments/0_mission-set%20(2).png)
+
 **設計者 Designer:**
 
 Bananaiiii
